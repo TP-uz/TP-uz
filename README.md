@@ -1,4 +1,4 @@
--If your reading this, you might just be my friend cause i dont share this page often
+-If you're reading this, you might just be my friend cause i dont share this page often
 -Also tell dayzit to give me my emeralds back
 -I need them
 
